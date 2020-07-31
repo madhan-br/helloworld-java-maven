@@ -1,4 +1,4 @@
-Push Event For any questions - Please email me at DevOps@RajeshKumar.gxyz/
+Push  For any questions - Please email me at DevOps@RajeshKumar.gxyz/
 # this isddd a fix og sdfljflld fjldsfjdsjfkdl;sdasdasdasdfdsfsdfsdfserewrwe
 # ========================NEXUS==============================
 
